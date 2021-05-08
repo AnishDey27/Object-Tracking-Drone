@@ -17,5 +17,5 @@ For more details Visit my youtube channel.
 Channel Name: DIYLIFEHACKER
 
 
-Channel Link: youtube.com/c/DIYLIFEHACKER
+Channel Link:   www.youtube.com/c/DIYLIFEHACKER
 
